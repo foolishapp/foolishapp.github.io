@@ -1,0 +1,1 @@
+# foolishapp.github.io
